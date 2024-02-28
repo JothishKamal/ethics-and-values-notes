@@ -1,1 +1,1 @@
-# ethics-and-values-notes
+# Ethics And Values Notes
